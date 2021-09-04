@@ -1,0 +1,4 @@
+- 👋 Hi, I’m Aishwarya, I'm 18 years old.
+- 👀 I’m interested in programming, learning languages, organising, graphic design and cryptocurrencies! 
+- 🌱 I’m currently improving my web development skills.
+- <3 How to reach me: https://www.linkedin.com/in/aishwarya-vepa-8bb0b6205/ : - )
